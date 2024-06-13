@@ -6,4 +6,4 @@ Meu nome é Ana Clara Sousa Lourenço
 - Estou aprendendo a linguagem JavaScript
 - Utilizo esse espaço para compartilhar meus objetos
 
-![](https://tenor.com/pt-BR/view/monke-funny-monke-monke-funny-monke-meme-funny-monkey-gif-24802020)
+![](https://tenor.com/pt-BR/view/sombar-palmeiras-corinthians-s%C3%A3o-paulo-santos-futebol-brasileiro-gif-3434220852104780743)
